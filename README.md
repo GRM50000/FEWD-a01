@@ -6,7 +6,7 @@ Twelve years ago this week **(Feb 2011)** on Waikiki Beach, I started playing mu
 Anyway, one night after grabbing a soda from the ABC Convenience Store, I sat down with my guitar, tuned up, and as soon as I strummed an "E" Chord, a passerby tossed 45 cents at my guitar case. From there, a long career was born.
 
 ## GRM50000 - My Emerging _Alter-Ego_.
-For a few different responsiblities in my life, I go by the screenname / pseudonym _**GRM50000**_. 
+For a few different compartments of my life, I go by the screenname / pseudonym _**GRM50000**_. 
 These tasks include, but aren't limited to:
 * Web Design
 * Fiction Writing 
